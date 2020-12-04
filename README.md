@@ -1,4 +1,4 @@
 # Bahagian-Istiadat-Dan-rusetia-ntarabangsa
 
-<a href="http://intranet.istiadat.gov.my/">Bahagian Istiadat Dan Urusetia Antarabangsa</a>
+<a href="https://ezran.my/BIUPA/">Bahagian Istiadat Dan Urusetia Antarabangsa</a>
 <br>
